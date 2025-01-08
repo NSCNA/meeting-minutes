@@ -2,7 +2,21 @@
 ## General membership meeting
 
 ### Executive summary
-We made a slate of candidates for 7 Board of Directors, President, Vice President, Secretary, and Treasurer.
+We made a slate of candidates for 7 Board of Directors, President, Vice President, Secretary, and Treasurer:
+- John Anderson (President)
+- Rosanna Martinez (Vice President)
+- Michael Gully-Santiago (Secretary)
+- Steven Weintraub (Treasurer)
+- Deborah Glast 
+- Anna Renery
+- Katie Lee
+- Roger Foreman
+- Josh Conrad
+- Val Benavidez
+- Erin Thompson 
+
+The candidates were elected by acclimation at 7:29 PM.  
+The draft General Membership meeting minutes for 11/12/2024 were approved.
 
 ### Detailed minutes
 
@@ -34,7 +48,13 @@ Rosanna Vice President statement-- happy to be part of the neighborhood.  Rosann
 Michael Gully-Santiago is running for Secretary, gave his statement.  Steven Weintraub now giving his statement.  Steven was a founding member and signed the initial charter!  Steven is running for Treasurer.  Erin proposes a dog walking park to bring folks from around the neighborhood together.  
 
 **7:10 PM:**  
-Deborah takes over to give her statement as Board of Director.  Deborah has been running the newsletter.  Josh gives an overview of candidates Anna Renery and Katie Lee who are not present.  Their candidate statements are attached to the meeting minutes circulated today.  Roger Foreman gives his candidate statement.  Roger hosted the Halloween Haunted House that helped to identify some new Board members.  
+Deborah takes over to give her statement as Board of Director.  Deborah has been running the newsletter.  Josh gives an overview of candidates Anna Renery and Katie Lee who were not in attendance.  Their candidate statements are attached to the meeting minutes circulated today.  Roger Foreman gives his candidate statement.  Roger hosted the Halloween Haunted House that helped to identify some new Board members.  
 
 **7:20 PM:**  
 Kat describes the impact of hosting events open to the whole community.  Josh is thanking Clarissa for her 2 years of service to the neighborhood.  Josh describes the "Oral History Project" started by Adam Powell, which is still ongoing.  Josh Conrad gives his statement for Board of Directors.  Val Benavidez has lived in the neighborhood since 2010.  We are discussing pets, including "cookie" a funloving "catdog".  Val is happy to involve with leadership and political engagement.  Elio Benavidez introduces himself.  Erin Thompson is a candidate for Board of Directors.  Erin is a Realtor and project management with an interior designer.  Erin was involved in the cover photo project for Treviso.  Erin enjoys walking her dog at Pillow.  
+
+**7:29 PM:**
+Josh seeks any objections to the nominated slate of candidates.  Hearing none, we declare the candidates as elected.
+
+**7:34 PM:**  
+Treasurer report-- there were no printouts tonight, but Josh and John indicated that the finances are on track with budgets.  Kat is giving the Social Committee report, including a summary of the Luminaria event.  
