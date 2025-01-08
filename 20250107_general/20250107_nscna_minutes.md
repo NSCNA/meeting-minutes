@@ -1,6 +1,11 @@
 # NSCNA Jan 7, 2025
 ## General membership meeting
 
+### Executive summary
+We made a slate of candidates for 7 Board of Directors, President, Vice President, Secretary, and Treasurer.
+
+### Detailed minutes
+
 Meeting started at 6:35 PM by Josh Conrad  
 
 **6:38 PM:**   
@@ -29,4 +34,4 @@ Rosanna Vice President statement-- happy to be part of the neighborhood.  Rosann
 Michael Gully-Santiago is running for Secretary, gave his statement.  Steven Weintraub now giving his statement.  Steven was a founding member and signed the initial charter!  Steven is running for Treasurer.  Erin proposes a dog walking park to bring folks from around the neighborhood together.  
 
 **7:10 PM:**  
-Deborah takes over to give her statement as Board of Director.
+Deborah takes over to give her statement as Board of Director.  Deborah has been running the newsletter.  Josh gives an overview of candidates Anna Renery and Katie Lee.  Their candidate statements are attached to the meeting minutes circulated today.  Roger Foreman gives his candidate statement.  
