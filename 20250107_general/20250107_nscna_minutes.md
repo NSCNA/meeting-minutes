@@ -16,4 +16,7 @@ Honoring Kat who will be stepping down from the Pillow Committee and board this 
 **6:48 PM:**  
 Josh describes the process of the election, and proposes continuing the recent tradition of "election by acclimation", in which an existing uncontested slate of candidates is voted upon via unanimity (i.e. the absence of dissent).
 
+**6:51 PM:**
+Josh notes that there are 2 open positions for Board of Directors.  Val Benavidez agrees to be on the board of directors.  Erin Thompson tentatively agrees to chair the Development Committee.  Erin asked about the prospect of developing the creek land into parkland.  Josh describes ongoing discussions.  Erin agrees to be on the Board of Directors.  
 
+**6:56 PM:** 
