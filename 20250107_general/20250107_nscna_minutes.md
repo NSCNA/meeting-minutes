@@ -15,8 +15,10 @@ We made a slate of candidates for 7 Board of Directors, President, Vice Presiden
 - Val Benavidez
 - Erin Thompson 
 
-The candidates were elected by acclimation at 7:29 PM.  
+The candidates were elected by acclamation at 7:29 PM.  
 The draft General Membership meeting minutes for 11/12/2024 were approved.
+
+Note: It is understood that by election of the new officers that the previous officer (Josh Conrad) will not have signatory privileges on the Telco credit union account and that the newly elected officers: John Anderson (President) and Steven Weintaub( Treasurer) will be signatories on the Telco Credit Union account.
 
 ### Detailed minutes
 
