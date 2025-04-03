@@ -4,11 +4,13 @@
 ## General membership meeting
 
 ### Executive summary
-We made a slate of candidates for 7 Board of Directors, President, Vice President, Secretary, and Treasurer:
+We proposed a slate of candidates for 7 Board of Directors, President, Vice President, Secretary, and Treasurer:
 - John Anderson (President)
 - Rosanna Martinez (Vice President)
 - Michael Gully-Santiago (Secretary)
 - Steven Weintraub (Treasurer)
+
+2025 Board of Directors:
 - Deborah Glast 
 - Anna Renery
 - Katie Lee
