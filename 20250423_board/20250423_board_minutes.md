@@ -28,7 +28,7 @@ Minutes
 -------
 
 1. Approve March Board Meeting minutes  
-5:37 PM We approved the minutes.  Amendment to last month's minutes: Steven's name is not one them.
+5:37 PM We approved the minutes.  Amendment to last month's minutes: Steven's name is not on them.
 
 2. Pillow park access and fencing update  
 The park access is locked on certain sides, there is still access, but it may not be clear how to get in.  We are discussing options.  Folks can still get in.  
