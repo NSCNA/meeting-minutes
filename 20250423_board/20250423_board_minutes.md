@@ -10,7 +10,7 @@ Attendees
 - John Anderson
 - Roger Foreman
 - Michael Gully-Santiago
-- (Steven Weintraub)
+- Steven Weintraub
 - Anna Renery
 
 Agenda
