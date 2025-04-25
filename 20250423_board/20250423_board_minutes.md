@@ -1,5 +1,6 @@
 # April 2025 NSCNA Board meeting minutes
 ## at Rosanna's house
+### Wednesday, April 23, 2025  
 ### 5:30 - 7 pm
 
 
