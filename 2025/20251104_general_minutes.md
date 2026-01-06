@@ -1,7 +1,7 @@
-North Shoal Creek Neighborhood Association
-November 4, 2025
-General Membership Meeting
-Pillow Elementary School Cafeteria
+# North Shoal Creek Neighborhood Association 
+## November 4, 2025   
+### General Membership Meeting 
+#### Pillow Elementary School Cafeteria. 
 
 
 6:30 PM
