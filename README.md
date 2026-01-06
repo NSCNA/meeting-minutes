@@ -1,2 +1,2 @@
 # meeting-minutes
-Proposed meeting minutes
+Proposed and approved meeting minutes 
